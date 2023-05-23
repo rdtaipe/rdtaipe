@@ -18,7 +18,7 @@
 - LinkedIn: ([LinkedIn](https://www.linkedin.com/in/rdtaipe))
 - Twitter: ([@rdtaipe](https://www.linkedin.com/in/rdtaipe_))
 - email:(finetaype@gmail.com)
-- Sitio Web: [rdtaipe](https://about-rdtaipe.web.app)
+- My Web site: [rdtaipe](https://about-rdtaipe.web.app)
 
 Feel free to connect with me and let's discuss how we can work together!
 
